@@ -1,2 +1,1 @@
 Danah Scarlett
-image.png
